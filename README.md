@@ -1,1 +1,1 @@
-C:\Users\SAHANA\OneDrive\Dokumen\Q11,Q12,Q13.docx
+https://1drv.ms/w/c/b88a440705617cf2/EZYIjzr2zF9CqyfiBIV9b3kBYR78a5bkhYAmFzYMRHAAVQ?e=9A5TNb
